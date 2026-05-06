@@ -1,1 +1,0 @@
-# JavaAplicationSetMMS2025
